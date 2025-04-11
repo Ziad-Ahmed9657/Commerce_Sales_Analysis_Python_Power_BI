@@ -25,7 +25,7 @@ Inshallah tomorrow I will build interactive and professional dashboard using Pow
 
 
 🔗Linked-In Profile:
-https://www.linkedin.com/posts/ziad-ahmed-gharieb-327a87275_im-very-excited-to-share-my-first-project-activity-7316256063089991680-fq3K?utm_source=share&utm_medium=member_desktop&rcm=ACoAAENBwQ8B-iY-nPAQ-F2-Ckbiu9kTA5oU0Lw
+https://www.linkedin.com/feed/update/urn:li:ugcPost:7316255966868467712/
 
 ## Freelance Websites:
 ### Kamsat: 
